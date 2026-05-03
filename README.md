@@ -1,1 +1,0 @@
-# Shop-Py-y-t-n-gi-r-
